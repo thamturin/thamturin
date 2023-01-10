@@ -3,11 +3,11 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=thamturin&label=Profile%20views&color=0e75b6&style=flat" alt="thamturin" /> </p>
 
-- 🔭 I’m currently working on **Lynch**
+- 🔭 I’m currently working on **your mom**
 
 - 📫 How to reach me **ahihidiscord@gmail.com**
 
-- ⚡ Fun fact **im 13**
+- ⚡ Fun fact **im 14**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
