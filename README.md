@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=thamturin&label=Profile%20views&color=0e75b6&style=flat" alt="thamturin" /> </p>
 
-- 🔭 I’m currently working on **liquidbounceminus reborn**
+- 🔭 I’m currently working on **sigma 4.11 remake or smth idk**
 
 - 📫 How to reach me **ahihidiscord@gmail.com**
 
